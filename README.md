@@ -1,0 +1,2 @@
+# public
+KASIH KERAS BODOH
